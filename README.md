@@ -1,1 +1,0 @@
-# latihan-tik-pertama-2026
